@@ -1,5 +1,5 @@
 ### Olá, meu nome é Anderson Faria 👋
-Sou **Analista de Suporte Junior** na Empresa Assim Saúde
+Sou **Analista de Suporte Junior** e um estudante permanete de tecnologia.
 
 
 
