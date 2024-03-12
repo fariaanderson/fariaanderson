@@ -1,5 +1,5 @@
 ### Olá, meu nome é Anderson Faria 👋
-Sou **Analista de Suporte Junior** e um estudante permanete de tecnologia.
+Sou **Analista de Suporte Junior** e um estudante permanente de tecnologia.
 
 
 
